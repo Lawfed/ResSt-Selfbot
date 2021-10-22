@@ -1,1 +1,1 @@
-# ResSt-Selfbot
+# ResSt-SelfbotEVERYTHING YOU NEED TO KNOW IS IN THE ZIP FILE
